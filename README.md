@@ -1,1 +1,2 @@
 # kayipnesnelermuzesi.github.io
+**WEBSİTESİ ŞUANDA GELİŞME AŞAMASINDADIR. İLERİDE YENİ EŞYALAR VE DÜZENLEMELER EKLENEBİLİR.**
